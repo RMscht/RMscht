@@ -6,5 +6,5 @@
 - How to contact me ?
   - 📧 Email : remimsht09@gmail.com
   - 💼 Linked'In : 
+  - 👻 Snapchat :
   - 🎮 Discord : remi03596
-  - 👻 Snapchat : 
